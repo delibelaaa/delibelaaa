@@ -5,7 +5,7 @@
 ## Bir Geliştiriciyi Destekleyin
 ## Geliştiriciyi Destekleyin _
 Patreon: [ Kalybr50 delibelaa ] ( https://patreon.com/user?u=46793283&utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link )
-disord sonucu https://discord.gg/MQgrheef
+discord sonucu https://discord.gg/MQgrheef
 # Bazı resimler:
 ![ ] ( https://i.imgur.com/vlExoOb.png )
 ![ ] ( https://i.imgur.com/GzMH2Qz.png )
